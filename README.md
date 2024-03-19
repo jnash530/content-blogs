@@ -1,2 +1,2 @@
 # content-blogs
-Blogs, articles and other written content pieces I have developed
+Step into my shoes with insights from over 15 years of navigating eCommerce, SaaS, and leadership. In my articles and blogs, I offer a personal account of my journey leading teams and spearheading growth in both B2C and B2B SaaS companies. Whether you're seeking inspiration for your career path, practical strategies to tackle challenges, or guidance on honing leadership skills, you'll find relatable stories and invaluable lessons learned along the way. 
